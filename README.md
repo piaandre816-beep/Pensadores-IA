@@ -1,0 +1,1 @@
+https://pensadoresia.lovable.app
